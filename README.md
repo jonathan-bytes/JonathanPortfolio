@@ -1,2 +1,0 @@
-# JonathanPortfolio
-Graphic Design Portfolio
